@@ -1,2 +1,2 @@
 # hutagaol
-My data encrypt
+Jangan serius banget!!!
